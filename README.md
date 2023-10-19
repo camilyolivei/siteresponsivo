@@ -1,5 +1,5 @@
-![PRÉVIA (6)](https://github.com/camilyolivei/siteresponsivo/assets/120147200/01f81506-8066-4e27-a86d-733c491c2c95)
 
+![previa-5](https://github.com/camilyolivei/siteresponsivo/assets/120147200/0c62777f-077e-49ef-b2af-797e843f2621)
 
 
 
